@@ -1,1 +1,1 @@
-# STARK boii
+# STARK
